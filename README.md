@@ -1,3 +1,3 @@
 # medicalpallete-mail
 チームメンバー紹介
-ちぽ
+上田侑来：破壊神
